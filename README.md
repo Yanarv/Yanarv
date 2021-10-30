@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Yanarv
+- 👀 I’m interested in recruiting
+- 🌱 I’m currently learning leadership because programming is too complicated for my brain
+- 💞️ I’m looking to collaborate on sourcing of IT roles
+- 📫 How to reach me: telegram @yanarv
